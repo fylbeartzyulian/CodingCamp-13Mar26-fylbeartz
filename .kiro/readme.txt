@@ -1,0 +1,1 @@
+Kiro AI workspace metadata
